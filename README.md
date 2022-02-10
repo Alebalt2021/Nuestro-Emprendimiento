@@ -7,6 +7,7 @@ Emprendimiento 🤑 / Tienda Online: Cute &amp; Child 👧🧒 / Fecha de entreg
 
 ## 𝔻𝔼𝔽𝕀ℕ𝕀ℂ𝕀Óℕ 𝔻𝔼𝕃 ℙℝ𝕆𝔻𝕌ℂ𝕋𝕆 🎯 ANDREA
 - **¿Qᥙιᥱ́ᥒᥱs soᥒ ᥣos ρrιᥒᥴιρᥲᥣᥱs ᥙsᥙᥲrιos dᥱᥣ ρrodᥙᥴto?** 
+
 El cliente final seria los niños y niñas de entre 4-12 años de edad que serán quienes usen los productos que se ofrecerán al mercado. Sin embargo, estos menores no son quienes acuden a comprar a las tiendas, por lo que el mercado objetivo estará enfocado en el cliente directo que corresponde a las madres de estos, o
 mujeres que presenten contacto y/o relación con este tipo de infantes.
 La decisión de orientarse en la mujer radica en un estudio de The Boston Consulting
@@ -16,10 +17,12 @@ complicarse al momento de hacer regalos a sus hijos, esperando que sean ellas
 quienes solucionen este dilema. Entonces, estará dirigido a mujeres de entre 20-45 años de edad, que sean madres o tengan contacto directo con infantes de entre 4-12 años.
 
 - **¿Cᥙᥲ́ᥣᥱs soᥒ ᥣos objᥱtιvos dᥱ ᥱstos ᥙsᥙᥲrιos ᥱᥒ rᥱᥣᥲᥴιóᥒ ᥴoᥒ tᥙ ρrodᥙᥴto?** 
+
 Las madres de los infantes tienen por objetivo ahorrar tiempo  en la compra de ropa de sus hijos, ya que no cuentan con este por temas de trabajo y el cuidado de sus niños.
 Con la necesidad de comprar la mejor ropa para los niños y niñas, siempre buscando las alternativas para vestirlos,buscando diferentes hormas, calidad de las telas, colores y modelos. Las cuales tengan excelente calidad y a bajo costo.
 
 - **¿Cómo ᥴrᥱᥱs qᥙᥱ ᥱᥣ ρrodᥙᥴto qᥙᥱ ᥱstᥲ́s ᥴrᥱᥲᥒdo ᥱstᥲ́ rᥱsoᥣvιᥱᥒdo sᥙs ρrobᥣᥱmᥲs?** 
+
 Nuestro proyecto tiene por objetivo ofrecer precios accesibles por las compras. Tomaremos en consideración los comentarios de los clientes, para idear estrategias de mercado, con la finalidad de mejorar el servicio prestado y así aumentar las ventas. Nos posicionarse como la tienda donde se pueda adquirir ropa de todos los géneros y de cualquier estilo para los niñ@s.
 
 ## ℂ𝕆ℕ𝕋𝔼ℕ𝕀𝔻𝕆 𝕐 𝔽𝕌ℕℂ𝕀𝕆ℕ𝔸𝕃𝕀𝔻𝔸𝔻𝔼𝕊
