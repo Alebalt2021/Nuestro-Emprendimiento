@@ -8,18 +8,11 @@ Emprendimiento 🤑 / Tienda Online: Cute &amp; Child 👧🧒 / Fecha de entreg
 ## 𝔻𝔼𝔽𝕀ℕ𝕀ℂ𝕀Óℕ 𝔻𝔼𝕃 ℙℝ𝕆𝔻𝕌ℂ𝕋𝕆 🎯 ANDREA
 - **¿Qᥙιᥱ́ᥒᥱs soᥒ ᥣos ρrιᥒᥴιρᥲᥣᥱs ᥙsᥙᥲrιos dᥱᥣ ρrodᥙᥴto?** 
 
-El cliente final seria los niños y niñas de entre 4-12 años de edad que serán quienes usen los productos que se ofrecerán al mercado. Sin embargo, estos menores no son quienes acuden a comprar a las tiendas, por lo que el mercado objetivo estará enfocado en el cliente directo que corresponde a las madres de estos, o
-mujeres que presenten contacto y/o relación con este tipo de infantes.
-La decisión de orientarse en la mujer radica en un estudio de The Boston Consulting
-Group (BCG) que determinó que ellas son responsables de más del 70% de las
-compras domésticas y familiares, y que en contraparte, indica que los hombres suelen
-complicarse al momento de hacer regalos a sus hijos, esperando que sean ellas
-quienes solucionen este dilema. Entonces, estará dirigido a mujeres de entre 20-45 años de edad, que sean madres o tengan contacto directo con infantes de entre 4-12 años.
+Madres solteras que estén entre los 20 hasta los 40 años de edad, con ingresos economicos de s/1000 hasta s/1800. Quienes se encuentran muy ocupadas por su trabajo de 12 horas y las tareas del hogar.
 
 - **¿Cᥙᥲ́ᥣᥱs soᥒ ᥣos objᥱtιvos dᥱ ᥱstos ᥙsᥙᥲrιos ᥱᥒ rᥱᥣᥲᥴιóᥒ ᥴoᥒ tᥙ ρrodᥙᥴto?** 
 
-Las madres de los infantes tienen por objetivo ahorrar tiempo  en la compra de ropa de sus hijos, ya que no cuentan con este por temas de trabajo y el cuidado de sus niños.
-Con la necesidad de comprar la mejor ropa para los niños y niñas, siempre buscando las alternativas para vestirlos,buscando diferentes hormas, calidad de las telas, colores y modelos. Las cuales tengan excelente calidad y a bajo costo.
+Las madres de los infantes tienen por objetivo ahorrar tiempo  en la compra de ropa de sus hijos,ya que se encuentran ocupadas por temas de trabajo y las tareas del hogar.
 
 - **¿Cómo ᥴrᥱᥱs qᥙᥱ ᥱᥣ ρrodᥙᥴto qᥙᥱ ᥱstᥲ́s ᥴrᥱᥲᥒdo ᥱstᥲ́ rᥱsoᥣvιᥱᥒdo sᥙs ρrobᥣᥱmᥲs?** 
 
