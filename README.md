@@ -8,15 +8,21 @@ Emprendimiento 🤑 / Tienda Online: Cute &amp; Child 👧🧒 / Fecha de entreg
 ## 𝔻𝔼𝔽𝕀ℕ𝕀ℂ𝕀Óℕ 𝔻𝔼𝕃 ℙℝ𝕆𝔻𝕌ℂ𝕋𝕆 🎯 ANDREA
 - **¿Qᥙιᥱ́ᥒᥱs soᥒ ᥣos ρrιᥒᥴιρᥲᥣᥱs ᥙsᥙᥲrιos dᥱᥣ ρrodᥙᥴto?** 
 
-Madres solteras que estén entre los 20 hasta los 40 años de edad, con ingresos economicos de s/1000 hasta s/1800. Quienes se encuentran muy ocupadas por su trabajo de 12 horas y las tareas del hogar.
+Madres solteras que estén entre los 20 hasta los 40 años de edad, con ingresos economicos entre s/1000 hasta s/1800. Las cuales se encuentran muy atareadas por su trabajo y las tareas del hogar.
+
+La decisión de orientarse en la mujer radica en un estudio de The Boston Consulting
+Group (BCG) que determinó que ellas son responsables de más del 70% de las
+compras domésticas y familiares, y que en contraparte, indica que los hombres suelen
+complicarse al momento de hacer regalos a sus hijos, esperando que sean ellas
+quienes solucionen este dilema.
 
 - **¿Cᥙᥲ́ᥣᥱs soᥒ ᥣos objᥱtιvos dᥱ ᥱstos ᥙsᥙᥲrιos ᥱᥒ rᥱᥣᥲᥴιóᥒ ᥴoᥒ tᥙ ρrodᥙᥴto?** 
 
-Las madres de los infantes tienen por objetivo ahorrar tiempo  en la compra de ropa de sus hijos,ya que se encuentran ocupadas por temas de trabajo y las tareas del hogar.
+Las madres de los infantes tienen por objetivo ahorrar tiempo  en la compra de ropa de sus hijos,ya que se encuentran ocupadas. Además de buscar ropa con diferentes estilos, a un bajo precio y de buena calidad.
 
 - **¿Cómo ᥴrᥱᥱs qᥙᥱ ᥱᥣ ρrodᥙᥴto qᥙᥱ ᥱstᥲ́s ᥴrᥱᥲᥒdo ᥱstᥲ́ rᥱsoᥣvιᥱᥒdo sᥙs ρrobᥣᥱmᥲs?** 
 
-Nuestro proyecto tiene por objetivo ofrecer precios accesibles por las compras. Tomaremos en consideración los comentarios de los clientes, para idear estrategias de mercado, con la finalidad de mejorar el servicio prestado y así aumentar las ventas. Nos posicionarse como la tienda donde se pueda adquirir ropa de todos los géneros y de cualquier estilo para los niñ@s.
+Nuestro proyecto esta resolviendo sus problemas al ofrecer precios accesibles por las compras, con envio a delivery hasta la comodidad de su hogar. Tomaremos en consideración los comentarios de los clientes, para idear estrategias de mercado, con la finalidad de mejorar el servicio prestado y así aumentar las ventas. Nos posicionarse como la tienda donde se pueda adquirir ropa de todos los géneros y de cualquier estilo para los niñ@s.
 
 ## ℂ𝕆ℕ𝕋𝔼ℕ𝕀𝔻𝕆 𝕐 𝔽𝕌ℕℂ𝕀𝕆ℕ𝔸𝕃𝕀𝔻𝔸𝔻𝔼𝕊
 
