@@ -7,8 +7,7 @@ Emprendimiento 🤑 / Tienda Online: Cute &amp; Child 👧🧒 / Fecha de entreg
 
 ## 𝔻𝔼𝔽𝕀ℕ𝕀ℂ𝕀Óℕ 𝔻𝔼𝕃 ℙℝ𝕆𝔻𝕌ℂ𝕋𝕆 🎯 ANDREA
 - **¿Qᥙιᥱ́ᥒᥱs soᥒ ᥣos ρrιᥒᥴιρᥲᥣᥱs ᥙsᥙᥲrιos dᥱᥣ ρrodᥙᥴto?** 
-
-Madres solteras que estén entre los 20 hasta los 40 años de edad, con ingresos economicos entre s/1000 hasta s/1800. Las cuales se encuentran muy atareadas por su trabajo y las tareas del hogar.
+Madres solteras que estén entre los 20 hasta los 40 años de edad, con ingresos economicos entre s/1000 hasta s/1800. Las cuales se encuentran muy atareadas por su trabajo y las tareas del hogar. 
 
 La decisión de orientarse en la mujer radica en un estudio de The Boston Consulting
 Group (BCG) que determinó que ellas son responsables de más del 70% de las
@@ -17,32 +16,21 @@ complicarse al momento de hacer regalos a sus hijos, esperando que sean ellas
 quienes solucionen este dilema.
 
 - **¿Cᥙᥲ́ᥣᥱs soᥒ ᥣos objᥱtιvos dᥱ ᥱstos ᥙsᥙᥲrιos ᥱᥒ rᥱᥣᥲᥴιóᥒ ᥴoᥒ tᥙ ρrodᥙᥴto?** 
-
 Las madres de los infantes tienen por objetivo ahorrar tiempo  en la compra de ropa de sus hijos,ya que se encuentran ocupadas. Además de buscar ropa con diferentes estilos, a un bajo precio y de buena calidad.
 
 - **¿Cómo ᥴrᥱᥱs qᥙᥱ ᥱᥣ ρrodᥙᥴto qᥙᥱ ᥱstᥲ́s ᥴrᥱᥲᥒdo ᥱstᥲ́ rᥱsoᥣvιᥱᥒdo sᥙs ρrobᥣᥱmᥲs?** 
-
 Nuestro proyecto esta resolviendo sus problemas al ofrecer precios accesibles por las compras, con envio a delivery hasta la comodidad de su hogar. Tomaremos en consideración los comentarios de los clientes, para idear estrategias de mercado, con la finalidad de mejorar el servicio prestado y así aumentar las ventas. Nos posicionarse como la tienda donde se pueda adquirir ropa de todos los géneros y de cualquier estilo para los niñ@s.
 
 ## ℂ𝕆ℕ𝕋𝔼ℕ𝕀𝔻𝕆 𝕐 𝔽𝕌ℕℂ𝕀𝕆ℕ𝔸𝕃𝕀𝔻𝔸𝔻𝔼𝕊
 
-## ℙℝ𝕆𝕋𝕆𝕋𝕀ℙ𝕆 (𝔽𝕀𝔾𝕄𝔸)
-<p float="left">
-  <img src="https://www.solucionex.com/sites/default/files/posts/imagen/figma_logo_icon_171159.png" width="400" height="200" /> 
-</p>
+## LINKS
+- Prototipo de Figma --> 
+- Video en Loom --> 
+- Carpeta Driive --> https://drive.google.com/drive/folders/1Lna_7v_Q06knBlK5VllOkTIDZEUu29Uk?usp=sharing
+- Publicación en Medium -->
 
-## 𝕍𝕀𝔻𝔼𝕆 (𝕃𝕆𝕆𝕄)
 <p float="left">
-  <img src="https://noticiasmoviles.com/wp-content/uploads/Loom_logo.png" width="400" height="200" /> 
-</p>
-
-## ℂ𝔸ℝℙ𝔼𝕋𝔸 𝔻ℝ𝕀𝕍𝔼 
-<p float="left">
-  <img src="https://i.blogs.es/404a76/drive1/450_1000.jpg" width="300" height="200" /> 
+  <img src="" width="400" height="200" /> 
 </p>
 
 
-## 𝕄𝔼𝔻𝕀𝕌𝕄
-<p float="left">
-  <img src="https://diariodeunfriki.com/wp-content/uploads/2019/09/medium.jpeg" width="400" height="200" /> 
-</p>
