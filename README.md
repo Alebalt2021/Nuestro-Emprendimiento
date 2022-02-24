@@ -22,15 +22,20 @@ Las madres de los infantes tienen por objetivo ahorrar tiempo  en la compra de r
 Nuestro proyecto esta resolviendo sus problemas al ofrecer precios accesibles por las compras, con envio a delivery hasta la comodidad de su hogar. Tomaremos en consideración los comentarios de los clientes, para idear estrategias de mercado, con la finalidad de mejorar el servicio prestado y así aumentar las ventas. Nos posicionarse como la tienda donde se pueda adquirir ropa de todos los géneros y de cualquier estilo para los niñ@s.
 
 ## ℂ𝕆ℕ𝕋𝔼ℕ𝕀𝔻𝕆 𝕐 𝔽𝕌ℕℂ𝕀𝕆ℕ𝔸𝕃𝕀𝔻𝔸𝔻𝔼𝕊
+### Objetivos del proyecto
+### Necesidades del usuario final
 
-## LINKS
+## 𝕎𝕆ℝ𝕂ℙℝ𝔼𝕊𝕊
+
+
+## 𝕃𝕀ℕ𝕂𝕊
 - Prototipo de Figma --> 
 - Video en Loom --> 
 - Carpeta Driive --> https://drive.google.com/drive/folders/1Lna_7v_Q06knBlK5VllOkTIDZEUu29Uk?usp=sharing
-- Publicación en Medium -->
+- Publicación en Medium --> https://medium.com/@abaltazar_70571/cute-child-56b9f1c6bb0f
 
 <p float="left">
-  <img src="" width="400" height="200" /> 
+  <img src="https://www.saveyourlinks.com/wp-content/uploads/2020/10/importance-of-backlinks.jpg" width="600" height="300" /> 
 </p>
 
 
