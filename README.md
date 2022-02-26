@@ -39,7 +39,7 @@ Nuestro proyecto está resolviendo sus problemas al ofrecer precios accesibles p
 
 ## 𝕃𝕀ℕ𝕂𝕊 🧷
 - Prototipo de Figma --> https://www.figma.com/file/eqNpgTxkrNPWeW4SFB094l/Untitled?node-id=0%3A1
-- Video en Loom --> 
+- Video en Loom --> https://drive.google.com/file/d/1t5ZHp9BY5r-7ECF-dZohF7KMhM6aahYN/view?usp=sharing
 - Carpeta Drive --> https://drive.google.com/drive/folders/1Lna_7v_Q06knBlK5VllOkTIDZEUu29Uk?usp=sharing
 - Publicación en Medium --> https://medium.com/@abaltazar_70571/cute-child-56b9f1c6bb0f
 
